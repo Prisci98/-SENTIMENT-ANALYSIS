@@ -81,4 +81,14 @@ Key Insights
 
 OUTPUT
 
+![Image](https://github.com/user-attachments/assets/70ec70ba-8018-41a5-a623-8bcea3154604)
 
+![Image](https://github.com/user-attachments/assets/5716aede-2e76-428f-bc2c-0301cbe5196d)
+
+![Image](https://github.com/user-attachments/assets/ace3debf-9214-42eb-a5f5-9fef7f00d0f7)
+
+![Image](https://github.com/user-attachments/assets/46b7184c-5278-4168-bd4e-6ad82b0ba124)
+
+![Image](https://github.com/user-attachments/assets/1a300ecf-dc2e-4cbb-af54-c705f1522419)
+
+![Image](https://github.com/user-attachments/assets/7ca1880c-88ee-489f-b404-9b8cb5aa9052)
